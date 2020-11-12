@@ -1,1 +1,1 @@
-# Technical-analysis-of-IFAST-
+# Technical-analysis-of-IFAST
